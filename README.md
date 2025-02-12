@@ -1,1 +1,1 @@
-To obtain information related to the topic, you can review the presentation file I have attached, as well as the books and articles listed in its reference section. The website mentioned in the presentation is currently inactive.
+To obtain information related to the topic, you can review the presentation and final report files I have attached, as well as the books and articles listed in gheir reference section. The website of the project is currently inactive.
